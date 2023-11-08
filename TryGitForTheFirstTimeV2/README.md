@@ -1,3 +1,0 @@
-#header
-
-Iki ke loro
